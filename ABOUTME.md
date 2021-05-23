@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Naomi! 
+- I'm a recent NYU Gallatin Graduate 💜 Studied Tech Entrepreneruship in the African Diaspora // I also work at NYU IT as a Web Publsihing Consultant 
+- 📫 Hit me up via email : ntm275@nyu.edu if you have any questions pour moi! 
